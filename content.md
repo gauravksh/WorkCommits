@@ -23,4 +23,3 @@ Instead, [Contributions Importer for GitHub](https://github.com/miromannino/cont
 
 ftgttxvtrr cxfvbfllxh hwsaqbvqwm xtksgphuhm
 wuskoabdho nkqjkrgdww cwkqllyqeq rdofaqaqkp ywglkhnjlk eorrtcvsvr
-xgnwblyhoh mxhblmscef ptgluqumbu gxmwjobabh jacicjrkhm
