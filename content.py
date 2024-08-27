@@ -1,1 +1,1 @@
-print("gofcs")
+print("wslta")
