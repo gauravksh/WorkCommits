@@ -1,1 +1,1 @@
-print("laumy")
+print("inpxw")
