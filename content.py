@@ -1,1 +1,1 @@
-print("wqdoy")
+print("laumy")
